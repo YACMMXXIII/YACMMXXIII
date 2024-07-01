@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do YACMMXXIII 😁
+## Bem-vindo(a) ao perfil do Yuri Cabral 😁
 
  <div>
    <a href="https://github.com/YACMMXXIII">
